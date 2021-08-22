@@ -1,8 +1,13 @@
 Hi👋 There!!! It's Amal here!!!!
+
 Did my graduation🎓 in Mathematics ➕➖✖➗
+
 👀 I’m interested in business analysis🤝 and artificial intelligents🧠
+
 🌱 I’m currently learning Diploma in data analytics
+
 💞️ I’m looking to collaborate on data analysis projects
+
 Touch with me:
 📩 amalalappat262555@gmail.com
 📱 7561879010
