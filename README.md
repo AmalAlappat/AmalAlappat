@@ -1,10 +1,10 @@
 Hi👋 There!!! It's Amal here!!!!
 
-Did my graduation🎓 in Mathematics ➕➖✖➗
+A Mathematics✖➗ graduate🎓
 
-👀 I’m interested in business analysis🤝 and artificial intelligents🧠
+Interested to Business🤝 analysis and Artificial intelligents🧠
 
-🌱 I’m currently learning Diploma in data analytics
+Currently iam learning🙇‍ Diploma in data analytics at EduBridge Learning Pvt. Ltd
 
 💞️ I’m looking to collaborate on data analysis projects
 
